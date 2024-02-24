@@ -1,1 +1,1 @@
-"# Atividade - Curr¡culo" 
+"# Atividade - Curriculo" 
